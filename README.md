@@ -1,2 +1,0 @@
-# gussiejr.github.io
-Portfolio
